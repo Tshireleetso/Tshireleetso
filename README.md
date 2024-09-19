@@ -1,4 +1,4 @@
-👋 Hi, I’m @Tshireleetso
+👋 Hi, I’m Pertunia Tshireletso Modise @Tshireleetso
 
 👀 I’m interested in people-oriented roles that promote collaboration and growth.
 🌱 I’m currently learning software engineering at We Think Code (2023-2024).
